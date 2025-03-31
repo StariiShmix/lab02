@@ -1,2 +1,1 @@
-1
-pizdec nahiu 
+ 
